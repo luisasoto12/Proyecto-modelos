@@ -6,4 +6,4 @@ Luisa María Soto Arias - cc. 1038867537 - Ingeniería de Sistemas
 
 Mily Johanna Sierra Soto - cc. 1020108972 - Ingeniería de Sistemas
 
-Link video: (https://youtu.be/5SjVdp48hL8?si=tKGQQfHcxznEOvNa)
+Link video: https://youtu.be/5SjVdp48hL8?si=tKGQQfHcxznEOvNa
